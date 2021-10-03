@@ -5,7 +5,7 @@
 
 [看片最新地址一 点击此处](https://8xseng.com/) 
 
-[看片最新地址二 点击此处](https:/8xdjnn.com/) 
+[看片最新地址二 点击此处](https://8xdjnn.com/) 
 
 [看片最新地址三 点击此处](https://8xaeqn.com/) 
 
